@@ -1,2 +1,0 @@
-# WeAreCdmx.com
-
